@@ -6,7 +6,7 @@
 
 - 💞️ I’m eagerly looking to collaborate on projects that challenge me to innovate and elevate user interactions to new heights.
 
-- 📫 How to reach me: Feel free to connect with me via email at [omr.mohamed1355@gmail.com] or LinkedIn [linkedin.com/in/omar-ghoname-37a453302). Let's build something amazing together!
+- 📫 How to reach me: Feel free to connect with me via email at [omr.mohamed1355@gmail.com] or[linkedin.com/in/omar-ghoname-37a453302). Let's build something amazing together!
   
 - ⚡  fact: Coding is in my blood
 
